@@ -1,2 +1,2 @@
 # Helsing.
-F**k This Shit.
+Blank Universe.
